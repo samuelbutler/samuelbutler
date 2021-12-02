@@ -1,4 +1,4 @@
-### Hi there 👋
+### :see_no_evil::hear_no_evil::speak_no_evil:
 
 <!--
 **samuelbutler/samuelbutler** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
